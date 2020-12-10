@@ -1,1 +1,0 @@
-<h1>Pelo Amor de Deus, o coisa difícil de entender!</h1>
